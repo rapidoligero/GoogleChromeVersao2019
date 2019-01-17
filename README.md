@@ -1,1 +1,0 @@
-# GoogleChromeVersao2019
